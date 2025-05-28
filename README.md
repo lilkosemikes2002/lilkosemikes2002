@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on app development
 - 📫 How to reach me: Facebook: Micheal Lily
 - 😄 Pronouns: she
-- ⚡ Fun fact: I love telling a joke or two when in q tensed situation to disperse the tension in the little way i can
+- ⚡ Fun fact: I love telling a joke or two when in a tensed situation to disperse the tension in the little way i can
 
 <!---
 lilkosemikes2002/lilkosemikes2002 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
